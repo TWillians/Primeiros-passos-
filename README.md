@@ -5,4 +5,9 @@
 ![images](https://user-images.githubusercontent.com/110108429/191009296-ae4822d8-2253-48b3-9c9c-b14abbd4c6b9.jpg)
 
 <p> Gosto de futebol⚽ <p/>
-![markdownify](https://user-images.githubusercontent.com/110108429/191010129-6636ac2e-2854-43f2-9758-a6323f80725b.gif)![pb](https://user-images.githubusercontent.com/110108429/191010777-de981c6c-6913-49ab-bd8e-df58fbb52b9e.png)
+
+![cristiano-ronaldo-futbol](https://user-images.githubusercontent.com/110108429/191499340-20db9888-3944-49f3-85de-18c95cd8bd3f.gif)
+
+
+https://user-images.githubusercontent.com/110108429/191499966-b1be2c45-a081-4679-bea5-d83da75da978.mp4
+
